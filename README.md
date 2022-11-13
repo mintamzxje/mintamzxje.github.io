@@ -1,1 +1,0 @@
-# mintamzxje.github.io
